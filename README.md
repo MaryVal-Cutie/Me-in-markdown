@@ -5,4 +5,10 @@
   My personal achievements I've reached was overcoming some struggles and having good grades at school.Fun fact about myself is (I'm  professional in self care and dancing.) My goals for the school year 2025-2026 is to have good grades, finding new friends, me being respected by my teachers and having awards this year. One of my summer travels was going to (Big Bear California it was fun I played on the snow, me and my family have so much fun and take pictures it was a long trip but it's worth it.) 
   
   My favorite food this summer was banana split because it is yummy and tasty. The thing I hope to learn on computer science class is to make information safe, coding and programming too. Most memorable experienced I had this summer was spending time with my family on my aunt's house to cooked delicious foods. The technology related projects I've been working on recently to buld a website was using Firebase Studio. The sport Im engaged in was playing tennis and the new skills I've learned recently was learning third language which is spanish and improving my mental health. Im engaged in drawing and the completed work I did was drawing landscapes using my imagination. Unfortunately  I'm sorry but I did not volunteer community service this summer the reason is my parents are usually at work and everyone is busy. The family tradition that took part in is family reunion, they mean to me by showing kindness and spending good time with them which is great. My favorite memory I made with my friends this summer is having picnic and taking pictures which is really enjoyable. My experienced have influenced my career goals by (positive and negative experiences which is a great lesson and it shows that learning mistakes and challenges makes as think what is better for our lives.)
- 
+  
+# My Spotify Playlist 
+
+[My summer playlist](https://open.spotify.com/playlist/6OCtnTsCSq7F5fwIIoEPPs?si=_luoZUq6Rb-N6dH_9422ZQ)
+
+# My Collage
+![this is a picture of my collage](1.png)
